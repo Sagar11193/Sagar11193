@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sagar11193
 - 👀 I’m interested in AI and Arsenal
 - 🌱 I’m currently learning nothing 
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m not interested collaborate on anything
 - 📫 How to reach me gunnersharma@tutamail.com
 - 😄 Pronouns:He
 - ⚡ Fun fact: ...
